@@ -35,7 +35,7 @@
 - 🔞 https://m4nifest0.com/product/telegram-auto-pro-full-activated/
 
 - 🔞 https://m4nifest0.shop/product/telegram-auto-pro-full-activated/
-- 
+
 - 🔞 https://m4nifest0.group/product/telegram-auto-pro-full-activated/
 
 # How to ger:
