@@ -26,6 +26,10 @@
 ----------------------
 - 🔞 http://shorturl.at/wGVX4
 
+# PassWord File:
+----------------------
+- 🔞 hack4lx.py
+
 # How to ger:
 ----------------------
 - 📌 Visit our channel or our site to download .
