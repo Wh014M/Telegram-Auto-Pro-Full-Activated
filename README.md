@@ -24,7 +24,7 @@
 
 # See how it works:
 ----------------------
-- 🔞 http://shorturl.at/wGVX4
+- 🔞 https://youtu.be/StG17vQf64E
 
 # PassWord File:
 ----------------------
